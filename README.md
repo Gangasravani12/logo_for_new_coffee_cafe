@@ -1,0 +1,1 @@
+# logo_for_new_coffee_cafe
